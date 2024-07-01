@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mike-7581
+- 👀 I'm interested in learning to program.
+- 🌱 I’m currently learning Java☕, Html, Css, Python🐍.
+- 📫 Mike7581 on discord.
+- 😄 Pronouns: He/Him
